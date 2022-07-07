@@ -1,3 +1,3 @@
 # examen_integrador
 
-Milagros 
+Milagros De Gregorio 
